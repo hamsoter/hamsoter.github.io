@@ -1,1 +1,0 @@
-# hamsoter.github.io
